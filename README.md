@@ -1,0 +1,1 @@
+# PravdaPay-Gizlilik-Politikas-ve-Kullan-c-S-zle-mesi
